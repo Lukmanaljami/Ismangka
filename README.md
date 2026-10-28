@@ -1,0 +1,2 @@
+# Ismangka
+Perjalanan dan tujuan 
